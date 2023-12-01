@@ -1,0 +1,1 @@
+Redscientist Labs is a community-focused software development group with a penchant for corrupting videogames and glitch aestethics. Redscientist Labs operates exclusively from their [Discord server](https://redscientist.com/RTC) 
